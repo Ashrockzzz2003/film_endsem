@@ -1,6 +1,6 @@
 # Film Analysis: *Pather Panchali* (1955)
 
-# Directed by:** Satyajit Ray
+# Directed by: Satyajit Ray
 
 ## Introduction:
 *Pather Panchali* (Song of the Little Road) is a critically acclaimed Indian film directed by Satyajit Ray. Released in 1955, it is the first installment of Ray's *Apu Trilogy* and is widely regarded as a masterpiece of world cinema. The film beautifully captures the lives of a poor Brahmin family in rural Bengal, exploring themes of poverty, dreams, and the power of human resilience. In this analysis, we will delve into various aspects of the film, including its themes, characters, point of view, story, plot, narration, literary, dramatic, and cinematic aspects, rhetorical figures, critical approaches, and sound analysis.
