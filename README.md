@@ -314,3 +314,5 @@ Sound analysis in "Pather Panchali" reveals the deliberate choices made in using
 ## Conclusion
 
 Satyajit Ray's Pather Panchali stands as a cinematic masterpiece that combines powerful storytelling, exquisite cinematography, and profound thematic exploration. Through its portrayal of poverty, resilience, and the complexities of life in rural Bengal, the film resonates with audiences on a universal level. Pather Panchali continues to be celebrated as a landmark in Indian cinema, showcasing Ray's artistic vision and his ability to capture the human experience with sensitivity and authenticity. The film's enduring legacy lies in its ability to transcend cultural and temporal boundaries, offering a poignant exploration of the human condition that resonates with viewers across generations.
+
+<p style="text-align: center;">Made with ♥️ by Ashwin Narayanan S</p>
